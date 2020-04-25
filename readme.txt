@@ -1,0 +1,1 @@
+This is Assignment Area provided by class
